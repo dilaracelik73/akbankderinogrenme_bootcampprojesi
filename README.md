@@ -1,0 +1,1 @@
+# akbankderinogrenme_bootcampprojesi
